@@ -1,0 +1,1 @@
+# minor_ediglobe_project
